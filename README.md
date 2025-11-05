@@ -3,12 +3,12 @@
 
 •i will be sharing my learnings through blogs 
 
-•projects i made during the timeline 
+•projects i made during the timeline or deadline 
 
 •let's see how much i will grow 
 
-• i know basics regrassion and theory-5/11/2025
+• i know basics regression and theory-5/11/2025
 
-•i will be creating one lab session after theory completion 
+•i will be creating real practical labs session  after theory completion 
 
 STAY TUNED LET'S GRIND
